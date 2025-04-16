@@ -1,3 +1,3 @@
 [troll](https://www.youtube.com/watch?v=HC7CiSQR2vE)
 
-![proof](https://imgur.com/a/jaJHIgx)
+![proof](https://i.imgur.com/2DeUSR7.png)
