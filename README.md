@@ -1,4 +1,4 @@
-#minified version of string decryptor
+# minified version of string decryptor
 
 [troll](https://www.youtube.com/watch?v=HC7CiSQR2vE)
 
